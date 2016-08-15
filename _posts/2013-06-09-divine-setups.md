@@ -1,0 +1,24 @@
+---
+id: 563
+title: Divine Setups
+date: 2013-06-09T14:49:00+00:00
+author: admin
+layout: post
+guid: http://redcilaencuesta.com/?p=563
+permalink: /2013/06/09/divine-setups/
+categories:
+  - General
+---
+The way you know you really believe that the Universe is a friendly place and all of life is in divine order it is that you never complain. (Do I really want to say this?) When we complain, we&#8217;re saying, something&#8217;s wrong here, this shouldn&#8217;t be happening. It shouldn&#8217;t be happening to me; it shouldn&#8217;t be happening this way. Life is unfair. The universe really is unfriendly and there is no order out here. Whatever it is you are complaining about. Do you have something you are complaining about right now? I&#8217;m noticing that I complain about contractors, about what is happening around my house. I decided to let that go and see the order in the universe. But, what if it never gets changed?
+
+You know the energy we put into complaining. I should say, &#8220;I&#8221; put into complaining. It&#8217;s exhausting and it really is about not believing there&#8217;s a perfect order in the universe. It believes that somebody else did something to me. This is happening, and it&#8217;s happening because somebody else is not living up to what they should be doing. You see, I know how people should be living. I know how others should be running their lives and when they don&#8217;t and it interferes with my life, I think there is something wrong out there. Am I the only one that thinks this way? We know the drill. Life is unfair. We may not say it in those words. But notice the words you do use when you say, &#8220;I don&#8217;t want this to be happening right now.&#8221;
+
+When we decide to focus, instead, on the divine quality of order, we say things just don&#8217;t feel right. When they don&#8217;t feel right, and then I remember there is a perfect order in the universe, I can stop and say at that moment, &#8220;This really is perfect. Whatever this is.&#8221; I have a friend whose husband used to say all the time, &#8220;This is it. And I am happy.&#8221; Isn&#8217;t that a great line? &#8220;This is it. And I am happy.&#8221; So, you can&#8217;t pay your bills? &#8220;This is it. And I am happy.&#8221; So, you have a headache, or you get a diagnosis you don&#8217;t like, &#8220;This is it. And I am happy.&#8221; So, you lose your job, a friend walks out on you, your love life ends, &#8220;This is it. And I am happy.&#8221; Have you had enough?
+
+But imagine living like that. We don&#8217;t believe in divine order. We think there is randomness in the universe and it&#8217;s happening to us. We live more in victim hood whenever we believe that things are happening TO us. The reason this didn&#8217;t happen is because YOU did this. Those contractors. Oh, I have my conversations with contractors all over the country. It&#8217;s not just Florida. I can get agreement for anything I want to complain about. And you will too.
+
+Notice that like attracts like. People say to me, &#8220;See, it&#8217;s true. All my friends say so.&#8221; Of course, your friends say so, because that&#8217;s what you say and life is a mirror. We are constantly bringing agreement into our life. If we don&#8217;t believe things are in order, the people in our lives won&#8217;t either. Maybe you need some new people in your life that can start believing these principles with you. The Law of Attraction, like gravity, works whether you believe it or not.
+
+There is perfection in everything. Life will constantly hand us things to manage, things to experience, things to grapple with. When we accept the quality of Order, what it does is present us with an opportunity to experience life as a series of opportunities to go beyond the senses. Go beyond the appearances; go beyond what we are seeing and really recognize the truth behind everything. It&#8217;s the opportunity to move beyond the little self that only sees the surface and live in the consciousness of our higher self. What jung used to call our trans personal self, that part of us that knows and knows that it knows. That part of us that experiences good, and knows there is good. Even though on some days you feel it is quite small, it really is whom you are. It really is your essence.
+
+This week I read somewhere, &#8220;Divine set-ups are purposeful events, choreographed by our soul to create the opportunity for us to wake up.&#8221; Divine set-ups? an interesting way to see life. Everything that is happening in life is by Divine set-up. We&#8217;ve chosen to have certain experiences. Everything has a reason; everything has a season. There&#8217;s a time for every purpose under heaven. There are never any accidents in our life. And I&#8217;m talking about little things as well as the big ones. It&#8217;s all happening perfectly. Nothing happens randomly. There is a perfect order in the universe.
